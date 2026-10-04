@@ -4,13 +4,16 @@ const loveMessage = `Hey mooki ❤️
 
 Just a Reminder.. 
 YOU are the most LUCKEIST thing that happened in MY LIFE😘!!.. 
-
+MY CORTIS🌍!!
 
 For me I always have faith in what I see, Now I know I have my Kids MOM who is gonna be OUR Angel🧚🏼,
 MY ALWAYS 🌙,
 MY GURL💋.
 
 
+I just wanna say maybe life is not gentle with me or life is not getting any better or like im not a perfecct guy to hang around BUT...
+irrespective of all these things in my life, i have FUNN things., that is YOU...
+You are not only a good thing in my life.. YOU are a BELESSING, which I got for no reason, literally i don"t know why GOD chose me to bless in this way. but i just wanna say THANKYOU to you and  
 And I'm forever greatful for Sarala n that goldDigger for Giving
  You to ME❤️.
 
